@@ -7,7 +7,7 @@
 
 **Archived by:** Adrian Wise Santos, Founder, GIGO Data, Inc.
 **Archive date:** June 13, 2026
-**Published article:** https://www.linkedin.com/article/edit/7471091077287034880/
+**Published article:** https://www.linkedin.com/pulse/esmod-jurys-promotion-2026-4-jours-de-fashion-business-santos-cqque
 
 ---
 
